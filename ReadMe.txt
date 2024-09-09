@@ -1,1 +1,0 @@
-We express our deep gratitude when referring to the SRS of our Seniors.
